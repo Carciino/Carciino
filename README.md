@@ -6,5 +6,12 @@
 
 ![image alt](https://github.com/Carciino/Carciino/blob/bc6be0b9242926f86ebdb707902fece336820e83/tumblr_324a85df92dfbc403602b6ae7f667fab_f4d3c573_400%20border.png)
 
+Pony Town FYI: If you c + h, dont ever think im gonna interact with you first (like texting) in the kindest way possible!! Unless your a close friend.
+
+DNI: Basic dni list (Pro/darkshippers, etc) 
+
+! - I dont mind if your 18 and above just dont be weird.
+
+
                                                 
 
