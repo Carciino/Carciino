@@ -6,7 +6,7 @@
 
 ![image alt](https://github.com/Carciino/Carciino/blob/bc6be0b9242926f86ebdb707902fece336820e83/tumblr_324a85df92dfbc403602b6ae7f667fab_f4d3c573_400%20border.png)
 
-Pony Town FYI: If you c + h, dont ever think im gonna interact with you first (like texting) in the kindest way possible!! Unless your a close friend.
+Pony Town FYI: If you c + h, dont ever think im gonna interact with you first (like texting) in the kindest way possible!! Unless your a close friend, also if we dont talk or interact for ages I will just unfriend you. No hard feelings!
 
 DNI: Basic dni list (Pro/darkshippers, etc) 
 
