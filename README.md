@@ -20,7 +20,7 @@ DNI: Basic dni list (Pro/darkshippers, etc)
 
 ! - I dont mind if your 18 and above just dont be weird.
 
-
+Also FYI: If we're cuddling and I suddenly go to another person to cuddle with, thats probably because they're a close friend.
 
                                                 
 
